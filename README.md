@@ -28,6 +28,8 @@ occasionally phosphorescent, and infinitely larger and more rapid in its movemen
 
 - [From Project Gutenberg] (http://www.gutenberg.org/ebooks/164)
 
+***
+
 **About Jules Verne**
 
 **Jules Gabriel Verne** (February 8, 1828 – March 24, 1905) was a French author who pioneered the 
