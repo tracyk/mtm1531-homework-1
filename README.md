@@ -10,6 +10,7 @@ and his submarine Nautilus as seen from the perspective of Professor Pierre Aron
 
 **Excerpt**
 Part One
+
 Chapter I: A Shifting Reef
 
 The year 1866 was signalised by a remarkable incident, a mysterious and puzzling phenomenon, 
