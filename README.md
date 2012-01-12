@@ -9,6 +9,7 @@ and his submarine Nautilus as seen from the perspective of Professor Pierre Aron
 - [Wikipedia entry] (http://upload.wikimedia.org/wikipedia/commons/4/4e/20000_title_0a.jpg)
 
 **Excerpt**
+
 Part One
 
 Chapter I: A Shifting Reef
